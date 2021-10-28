@@ -1,6 +1,5 @@
 - 👋 Hi, I’m SunGema
 - 👀 I’m interested in to research the One Piece
-- 💞️ I’m looking to collaborate with nobody because I'm Batman
 
 
 <!---
