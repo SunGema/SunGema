@@ -1,5 +1,5 @@
 - 👋 Hi, I’m SunGema
-- 👀 I’m interested in to research the One Piece
+
 
 
 <!---
